@@ -1,0 +1,3 @@
+    I am really sad ,because I cann't go home . I have't met my grandmother for two years.I miss her so much.She has cardiovascular related disease. I am really afraid of losing her. I'm afraid to one day I wake up and she's gone.
+    why do we have to part with life and death? It would be better if we could always be toghter.
+yestoday, I go to the park with my boyfriend. He is my lover, I want to spend the rest of my life with him.
